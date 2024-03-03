@@ -2,6 +2,8 @@ WORKING RIGHT NOW
 
 YOU NEED WINRAR
 
+Your key will be in the Read me.txt  File 
+
 Turn of virus protection 
 
 ![Ro Execs](https://github.com/Prodwave0/RO-EXEC/assets/150494453/41b930dc-3f0b-454d-b223-cb09721b241b)
