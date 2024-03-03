@@ -2,6 +2,8 @@ WORKING RIGHT NOW
 
 YOU NEED WINRAR
 
+Turn of virus protection 
+
 ![Ro Execs](https://github.com/Prodwave0/RO-EXEC/assets/150494453/41b930dc-3f0b-454d-b223-cb09721b241b)
 
 ![Proof](https://github.com/Prodwave0/RO-EXEC/assets/150494453/c4fd1f2c-5b39-4a53-b069-dba1f33b37da)
