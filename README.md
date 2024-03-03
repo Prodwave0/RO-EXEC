@@ -2,7 +2,7 @@ WORKING RIGHT NOW
 
 YOU NEED WINRAR
 
-Your key will be in the Read me.txt  File 
+Your key will be in the Read me.txt File 
 
 Turn of virus protection 
 
